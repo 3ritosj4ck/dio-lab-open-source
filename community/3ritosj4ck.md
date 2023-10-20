@@ -3,7 +3,9 @@
 My name is Erick Oliveira! But you can call me 3ritosJ4ck.
 
 ###10 years of customer service experience. (Embratel, Wizard)
+
 ###6 years of experience with fraude prevention. (PicPay)
+
 Studying programming with DIO.
 
 
